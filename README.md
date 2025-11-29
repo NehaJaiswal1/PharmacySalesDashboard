@@ -19,9 +19,13 @@ Key drivers affecting overall sales
 📈 Key Insights
 
 ✔ USA has the highest box shipments
+
 ✔ Digestive Enzymes are the top-selling product globally
+
 ✔ May & July show peak sales performance
+
 ✔ UK and India maintain consistent contributions
+
 ✔ Sales distribution and product mix provide a clear business perspective
 
 📂 Features Included
